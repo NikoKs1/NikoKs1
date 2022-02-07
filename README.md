@@ -1,3 +1,3 @@
 > 🇩🇪 German
 
-> ☎️ Communications @ https://plutorix.com
+> ☎️ Chief Operating Officer @ https://plutorix.com
